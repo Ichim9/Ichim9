@@ -1,6 +1,6 @@
 - Hi, I’m @Ichim9
 - I'm currently learning coding to give this profile a use.
-- Any pronouns are fine.
+- Any pronouns are fine (as i don't care if i get misgendered)
 
 
 <!---
